@@ -1,0 +1,1 @@
+# mindzwords.github.io
